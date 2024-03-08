@@ -1,0 +1,5 @@
+# StandWithRussia
+
+donate
+
+xmr 871ZQMBknSq1f1pXX2N5VKXJEP4GaJMKrcPftqoWMJ63SEZ8fTR5aXof7fTkbQo9rVfBTXGmPkypV1boEQtdJrHe4AU5cM9
